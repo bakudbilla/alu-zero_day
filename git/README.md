@@ -1,1 +1,1 @@
-my git directory and happy to start this journey
+my git directory and happy to start this journey.
